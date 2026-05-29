@@ -1,0 +1,1 @@
+Terjemahan Memoar Pdt. Markus ini saya memulai dari keberangkatannya dari Sorong ke Inanwatan (hal. 113). Halaman-halaman sebelumnya adalah tentang kisah Hidup Pdt. Markus sejak lahir sampai melakukan perjalanan ke Indonesia
